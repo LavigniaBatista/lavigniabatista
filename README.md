@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.ibb.co/B6ZgccV/Lav-gnia-Batista-3.png" alt="Lav-gnia-Batista-3" border="0"></a>
+  <img src="https://i.ibb.co/B6ZgccV/Lav-gnia-Batista-3.png" alt="Lav-gnia-Batista-3" border="0">
 </p>
 
 <p align="center">
